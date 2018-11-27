@@ -1,1 +1,0 @@
-# lohita_resume
